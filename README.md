@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-ROSW930806MDFDMN06
+ROSW930806MDFDMN06
